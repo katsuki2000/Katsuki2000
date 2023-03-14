@@ -8,7 +8,7 @@
 👀 I’m interested in computing and especially code but i am not developer, sorry !
 🌱 I’m currently learning all things about development and specifically how to learn it.
 ☘️Actually, I'm learning at SAYNA in order to reach this goal. It's digital school to learn all digitals jobs with a good family spirit and game way.
-💞️ I’m looking to collaborate on many projects to see all the methodoly development in the world, good luck for me !
+💞️ I’m looking to collaborate on many projects to see all the methodology development in the world, good luck for me !
 📫 How to reach me : mahalahatserailala@gmail.com 
 
 

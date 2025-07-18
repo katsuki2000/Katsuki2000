@@ -12,7 +12,7 @@
 📫 How to reach me : mahalahatserailala@gmail.com 
 
 
-More about SAYNA : https://sayna.io/
+
 More about me : https://www.linkedin.com/mwlite/in/mahalahatse-railala-99036423b
 
 

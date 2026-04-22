@@ -4,8 +4,8 @@
 
 
 
-👋 Hi, I’m Mahalahatse. I'm still following maths , AI and law studies. 
-🌱 I’m currently learning all things about development and specifically how to learn it.
+👋 Hi, I’m Mahalahatse. I'm following maths , AI and law studies. 
+🌱 I’m currently learning all things about AI and specifically how to learn it.
 📫 How to reach me : mahalahatserailala@gmail.com 
 
 
